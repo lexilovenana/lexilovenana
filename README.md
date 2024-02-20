@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on love at diner date me 
 - 📫 How to reach me my email lexi.m@amberley.school.nz
 - 😄 Pronouns: she her girl
-- ⚡ Fun fact: i hate lamb because i love lambs
+- ⚡ Fun fact: i hate eating lamb because i love lambs
 
 <!---
 lexilovenana/lexilovenana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
